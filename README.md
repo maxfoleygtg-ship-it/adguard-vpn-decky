@@ -1,4 +1,3 @@
-![Uploading Без имени.png…]()
 **[English](#english) · [Русский](#русский)**
 
 ## English
