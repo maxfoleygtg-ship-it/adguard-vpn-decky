@@ -1,3 +1,4 @@
+<img width="1280" height="640" alt="Без имени" src="https://github.com/user-attachments/assets/5c2a1857-4d32-4475-a8a6-3eb0fe757c21" />
 **[English](#english) · [Русский](#русский)**
 
 ## English
